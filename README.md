@@ -1,2 +1,2 @@
 # Système de la Nature (Holbach)
-Mise-à-jour orthographique de l'édition de 7970.
+Mise-à-jour orthographique de l'édition de 1770.
